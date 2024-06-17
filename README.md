@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Andrew!
+- 👀 I’m interested in snowboarding, motorcycles, Jesus and coding.
+- 🌱 I’m currently a Sophmore at UW studying Computer Science.
+- 💞️ I’m looking to work more on my independent skills when it comes to programing instead following a list "todo" steps
+- 📫 How to reach me ... https://www.linkedin.com/in/andrewriosc/
+- ⚡ Fun fact: I ride a Yamaha R6
